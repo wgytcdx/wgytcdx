@@ -1,4 +1,4 @@
-### Hi~ I am wgytcdx 👋
+### Hi~ I am 王自然 👋
 
 <!--
 **wgytcdx/wgytcdx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
